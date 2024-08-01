@@ -1,0 +1,2 @@
+# intelig-ncia-artificial
+PERGUNTAS INTELIGENCIA ARTIFICIAL
